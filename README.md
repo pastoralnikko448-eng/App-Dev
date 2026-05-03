@@ -80,7 +80,7 @@ He is strong, determined, and angry at injustice. Over time, his beliefs become 
 ![Picture](https://i.ytimg.com/vi/aNq1-F-szuk/maxresdefault.jpg)
 
 # **REST OF THE CHARACTERS INCLUDES:**
-## *1. HIGH GUARDS
+## *1. HIGH GUARDS*
 > High Guard's in Transformers One are a group of elite Cybertronian soldiers. They are strong, disciplined, and heavily armed, serving as enforcers of authority on Cybertron and often operating under leaders like Sentinel Prime now they following orders on Megatron.
 
 ![Picture](https://pbs.twimg.com/media/GijqV7NbYAIHJGl.jpg)
