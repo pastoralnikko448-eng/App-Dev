@@ -100,6 +100,10 @@ They were created by Primus, each with special powers, and they represent the fi
 ---------------------
 # **MY RESPONSE IN THIS MOVIE** 
 
+My reaction:
+
+![Picture](https://i.pinimg.com/736x/09/d4/3f/09d43f3b169c5878f7a58032edb2d513.jpg)
+
 "*I really like Transformers One because it feels like a story about best friends that turns super serious. At first, Optimus Prime and Megatron are like teammates who joke around and help each other, and that makes it fun and easy to watch.*
 
 *But then things change, and it kinda hits hard because you see them slowly stop understanding each other. It’s like when you and your friend argue, but way bigger. I think that part makes it really interesting, not just robots fighting.*
@@ -107,6 +111,8 @@ They were created by Primus, each with special powers, and they represent the fi
 *Also, the movie looks really cool like seeing them finally transform and become stronger is exciting. And when they discover secrets about their world, it feels like an adventure.*
 
 *So yeah, I like it because it’s not just action it’s about friendship, choices, and how someone can change over time.*"
+
+![Picture](https://i.pinimg.com/originals/7d/3b/54/7d3b54360d624848c4e2125f5341bd66.jpg)
 
 ---
 
