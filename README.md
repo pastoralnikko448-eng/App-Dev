@@ -2,6 +2,27 @@
 ## MOVIE NAME: *TF ONE*
 ![Picture](https://www.osvnews.com/wp-content/uploads/2024/09/20240913T1000-MOVIE-REVIEW-TRANSFORMERS-ONE-1781931-scaled.jpg)
 
+---
+
+MAIN CHARACTERS
+1. OPTIMUS PRIME(ORION PAX)
+2. MEGATRON(D16)
+3. BUMBLEBEE(B 127)
+4. ELITA ONE(ARIEL)
+5. SENTINEL PRIME
+6. ALPHA TRION
+7. ARACHNID
+8. STARSCREAM
+9. SOUNDWAVE
+10. SHOCKWAVE 
+
+REST OF THE CHARACTERS INCLUDES
+- HIGH GUARDS
+- CYBERTRONIAN MINERS
+- 13 PRIMES
+- CYBERTRONIANS
+
+---
 
 **DETAILS/DESCRIPTIONS IN THE MOVIE:**
 > : Transformers One is an animated origin story set on the planet Cybertron, long before the Autobots and Decepticons became enemies. The film follows two young bots Orion Pax who later becomes Optimus Prime and D-16 who becomes Megatron when they are still friends working as low-level miners.
