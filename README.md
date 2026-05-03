@@ -4,7 +4,7 @@
 
 ---
 
-MAIN CHARACTERS
+**MAIN CHARACTERS:**
 1. OPTIMUS PRIME(ORION PAX)
 2. MEGATRON(D16)
 3. BUMBLEBEE(B 127)
@@ -16,7 +16,7 @@ MAIN CHARACTERS
 9. SOUNDWAVE
 10. SHOCKWAVE 
 
-REST OF THE CHARACTERS INCLUDES
+**REST OF THE CHARACTERS INCLUDES:**
 - HIGH GUARDS
 - CYBERTRONIAN MINERS
 - 13 PRIMES
@@ -34,6 +34,7 @@ REST OF THE CHARACTERS INCLUDES
 > : The movie combines action, humor, and emotional moments, showing how two close friends become sworn enemies and how the fate of Cybertron is shaped by their choices. 
 
 ---------------------
+**MY RESPONSE IN THIS MOVIE**
 
 "*I really like Transformers One because it feels like a story about best friends that turns super serious. At first, Optimus Prime and Megatron are like teammates who joke around and help each other, and that makes it fun and easy to watch.*
 
